@@ -1,2 +1,0 @@
-# humayunnn.github.io-
-Waxom
